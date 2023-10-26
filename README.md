@@ -6,3 +6,4 @@
 
 ### yesuke is real yesuke is real yesuke is real yesuke is real yesuke is real yesuke is real yesuke is real yesuke is real ![download](https://github.com/whenwillkanyedrop/whenwillkanyedrop/assets/126821836/f20536d4-a4ee-4f65-a4a6-75f1102fecf3)
 
+Anyways, enough about kanye, you're probably wondering how I got here. (long electric guitar solo, hawk screaming, and tumble weed blowing by) Atlanta, Georgia... (to lazy type autobiography, quindao jui, mmm)
